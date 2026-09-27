@@ -1,1 +1,1 @@
-WORLD CLASS ALL 144 WEEKS GOLD STANDARD - Best Teaching 15/15 - Rich Cards Not Paragraph - No Telugu English Only - 300 SVGs 40 Sliders - Passwords student1234 teacher1234 No Hint - No Trademarks - Cloudflare Ready - File 2.5MB+ - GitHub ramanaraokamma/ai-academy
+WORLD CLASS TEACHER GUIDANCE ALL 144W GOLD STANDARD - How to Teach Each Week Session - 15/15 criteria - Rich Cards Not Paragraph - No Telugu English Only - Passwords student1234 teacher1234 No Hint - Cloudflare Ready
